@@ -225,4 +225,4 @@ Marathon is offered as a complete free version with all features and updates inc
 Don't miss out on playing Marathon! Download it now for free and join the ranks of players who have enjoyed this classic action game.
 
 ---
-**Last updated:** 2026-09-23 20:08:54 UTC
+**Last updated:** 2026-09-23 23:34:05 UTC
